@@ -2,7 +2,7 @@
 
 2-Best light and be on facing the camera
 
-3-Starting do the train
+3-Starting do the training
 
 4-And notice if it true or else
 
